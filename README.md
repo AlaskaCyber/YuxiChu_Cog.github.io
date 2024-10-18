@@ -1,1 +1,1 @@
-# Hey👋! It's Yuix here.
+# 👋 Yuxi here.
